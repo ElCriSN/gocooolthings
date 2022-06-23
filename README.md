@@ -1,1 +1,1 @@
-# gocooolthings
+# gocooolthings Codecademy :D! and W3Schools :)!!
